@@ -1,1 +1,0 @@
-# shalom-guru-foundation
